@@ -1,2 +1,3 @@
-# escola-ppz-24
-sao aulas de projetos de 2024
+### Boas vindas ou meu perfil🥊
+
+meu nome é wémer 
